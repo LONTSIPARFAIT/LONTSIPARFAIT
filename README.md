@@ -140,7 +140,7 @@ Email : lontsiparfait19@gmail.com
 
 
 
-LinkedIn : linkedin.com/in/lontsiparfait
+LinkedIn : [linkedin.com/in/lontsiparfait](https://www.linkedin.com/in/parfait-lontsi-610169338/)
 
 
 
